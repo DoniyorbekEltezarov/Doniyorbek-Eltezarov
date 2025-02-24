@@ -1,1 +1,1 @@
-# Doniyorbek-Eltezarov
+# Doniyorbek-Eltezaro
